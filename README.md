@@ -1,0 +1,2 @@
+# chenyijiederestore
+日记
